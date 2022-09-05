@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there. I'm Cam Hang, a student from Saigon University. I'm living and working in Ho Chi Minh city.
 
 <ul>
 <li> 
